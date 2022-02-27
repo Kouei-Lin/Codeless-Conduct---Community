@@ -8,7 +8,7 @@ Link to the tutorial:
 
 Let me know if there's any problem accessing the Notion page.
 
-Discord `Kouei#3588`
+Discord: `Kouei#3588`
 
 Email: `hungjui11@gmail.com`
 
